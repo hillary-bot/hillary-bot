@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Jean I'm studying at the Alura.
+- I'm from Arapongas-Pr
